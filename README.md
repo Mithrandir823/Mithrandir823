@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Mithrandir823
+- 👀 I’m interested in learning as much as I can
+- 🌱 I’m currently learning physics at the Buenos Aires University
